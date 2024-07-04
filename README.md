@@ -9,3 +9,22 @@
 - 📫 How to reach me: friasm519@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: Red is my favourite colour
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+- 💫 Mal año si el que ve esto no sabe leer inglés
